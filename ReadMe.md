@@ -1,5 +1,5 @@
 # 💫 About Me:
-📚olá meu nome é Enrico e sou estudante de desenvolvimento de sistemas.<br><br><br>
+📚olá meu nome é Enrico e sou estudante de Sistemas da Informação e Desenvolvimento de Sistemas.<br><br><br>
 
 
 ## 🌐 Socials:
